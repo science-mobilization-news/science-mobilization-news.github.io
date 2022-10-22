@@ -1,8 +1,5 @@
-url: http://science-mobilization-news.github.io
 title: Новости по мобилизации ученых и лиц с учеными степенями 
-subtitle: Web Development in NYC
-date_format: "ordinal"
-titlecase: true      
+subtitle: Новости по мобилизации ученых и лиц с учеными степенями 
 github_user:
 github_repo_count: 0
 github_show_profile_link: false
