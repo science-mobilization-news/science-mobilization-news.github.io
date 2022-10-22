@@ -21,6 +21,8 @@
 * Докторам и кандидатам наук призвали дать отсрочку от мобилизации. А то студентов некому будет учить (17/10/2022): [https://secretmag.ru/news/uchyonye-prizvali-dat-otsrochku-ot-mobilizacii-doktoram-i-kandidatam-nauk-17-10-2022.htm?ysclid=l9guxx7g4q155172500](https://secretmag.ru/news/uchyonye-prizvali-dat-otsrochku-ot-mobilizacii-doktoram-i-kandidatam-nauk-17-10-2022.htm?ysclid=l9guxx7g4q155172500)
 * Ученые ждут решения относительно отсрочки по мобилизации (13/10/2022): [https://legalbulletin.online/?p=603](https://legalbulletin.online/?p=603])
 * Профсоюз предлагает предоставить отсрочку от призыва педагогам высшей школы (20/10/2022): [https://ug.ru/profsoyuz-predlagaet-predostavit-otsrochku-ot-prizyva-pedagogam-vysshej-shkoly/](https://ug.ru/profsoyuz-predlagaet-predostavit-otsrochku-ot-prizyva-pedagogam-vysshej-shkoly/)
+* Кандидатам и докторам наук дали отсрочку от мобилизации (21/10/2022): [https://regnum.ru/news/society/3730833.html](https://regnum.ru/news/society/3730833.html)
+* У Минпросвещения и Минобороны попросили отсрочку для педагогов интернатов и детских домов (19/10/2022)[https://www.kommersant.ru/doc/5620670](https://www.kommersant.ru/doc/5620670)
 
 ## Телграмм каналы:
 * BRIEF: [https://t.me/rusbrief/62532](https://t.me/rusbrief/62532)
@@ -38,3 +40,5 @@
 
 ## Наше письмо:
 * [https://science-mobilization.github.io/](https://science-mobilization.github.io/)
+
+date: '`r paste("First created on Oct 01, 2018. Updated on", Sys.Date())`'
