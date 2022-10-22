@@ -23,6 +23,11 @@
 * Профсоюз предлагает предоставить отсрочку от призыва педагогам высшей школы (20/10/2022): [https://ug.ru/profsoyuz-predlagaet-predostavit-otsrochku-ot-prizyva-pedagogam-vysshej-shkoly/](https://ug.ru/profsoyuz-predlagaet-predostavit-otsrochku-ot-prizyva-pedagogam-vysshej-shkoly/)
 * Кандидатам и докторам наук дали отсрочку от мобилизации (21/10/2022): [https://regnum.ru/news/society/3730833.html](https://regnum.ru/news/society/3730833.html)
 * У Минпросвещения и Минобороны попросили отсрочку для педагогов интернатов и детских домов (19/10/2022)[https://www.kommersant.ru/doc/5620670](https://www.kommersant.ru/doc/5620670)
+* В Госдуме призвали дать отсрочку от мобилизации кандидатам и докторам наук (6/10/2022):[https://lenta.ru/news/2022/10/06/mobill/?ysclid=l9jpuluolk537136635](https://lenta.ru/news/2022/10/06/mobill/?ysclid=l9jpuluolk537136635)
+* Отсрочки от мобилизации: продолжение темы (19/10/2022): [https://vogazeta.ru/articles/2022/10/19/opinion/21077-Otsrochki_ot_mobilizatsii_prodolzhenie_temy?ysclid=l9jpup3dyz978179161](https://vogazeta.ru/articles/2022/10/19/opinion/21077-Otsrochki_ot_mobilizatsii_prodolzhenie_temy?ysclid=l9jpup3dyz978179161)
+* В Госдуме заявили о планах не мобилизовать граждан с учеными степенями (28/09/2022):[https://www.rbc.ru/politics/28/09/2022/63344b8b9a794721d6e3e666?ysclid=l9jpuco8gv49066902](https://www.rbc.ru/politics/28/09/2022/63344b8b9a794721d6e3e666?ysclid=l9jpuco8gv49066902)
+* Чернышов рассказал, что кандидатов и докторов наук не призовут по мобилизации Об этом сообщает "Рамблер" (21/10/2022): 
+[https://news.rambler.ru/science/49557877-chernyshov-rasskazal-chto-kandidatov-i-doktorov-nauk-ne-prizovut-po-mobilizatsii/?ysclid=l9jpub6aut464190097](https://news.rambler.ru/science/49557877-chernyshov-rasskazal-chto-kandidatov-i-doktorov-nauk-ne-prizovut-po-mobilizatsii/?ysclid=l9jpub6aut464190097)
 
 ## Телграмм каналы:
 * BRIEF: [https://t.me/rusbrief/62532](https://t.me/rusbrief/62532)
