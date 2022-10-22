@@ -38,7 +38,7 @@
 * Гидрология | ТГУ: [https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522](https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522)
 
 
-## Наше письмо:
+## Наше открытое письмо:
 * [https://science-mobilization.github.io/](https://science-mobilization.github.io/)
 
-date: '`r paste("First created on Oct 01, 2018. Updated on", Sys.Date())`'
+
