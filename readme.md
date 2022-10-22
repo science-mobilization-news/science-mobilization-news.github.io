@@ -30,7 +30,7 @@ https://incrussia.ru/news/otsrochka-uchenym/?utm_source=click
 * Ученые ждут решения относительно отсрочки по мобилизации (13/10/2022)
 - https://legalbulletin.online/?p=603
 
-##Телграмм каналы:
+## Телграмм каналы:
 * BRIEF: https://t.me/rusbrief/62532
 * Российская академия наук: https://t.me/rasofficial/4628
 * ЧЕРНЫШОВ. Вице-спикер ГД от ЛДПР. Образование, молодежка, вера: https://t.me/borischernyshov/622
