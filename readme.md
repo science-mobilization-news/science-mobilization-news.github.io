@@ -1,4 +1,7 @@
 # Новости по мобилизации ученых и лиц с учеными степенями 
+## Законопроект
+*  "О мобилизационной подготовке и мобилизации в Российской Федерации" (в части освобождения от мобилизации граждан, имеющих ученую степень доктора наук или кандидата наук (25/10/2022): [https://sozd.duma.gov.ru/bill/220935-8](https://sozd.duma.gov.ru/bill/220935-8)
+
 ## СМИ:
 * РАН призвала дать отсрочку от мобилизации еще трем категориям россиян (27/09/2022): [https://lenta.ru/news/2022/09/27/naukkd/](https://lenta.ru/news/2022/09/27/naukkd/)
 * В Госдуме заявили о планах не мобилизовать граждан с учеными степенями (28/09/2022):  [https://www.rbc.ru/politics/28/09](https://www.rbc.ru/politics/28/09/2022/63344b8b9a794721d6e3e666?ysclid=l9gtlc98wd279464297)
@@ -28,7 +31,7 @@
 * В Госдуме заявили о планах не мобилизовать граждан с учеными степенями (28/09/2022):[https://www.rbc.ru/politics/28/09/2022/63344b8b9a794721d6e3e666?ysclid=l9jpuco8gv49066902](https://www.rbc.ru/politics/28/09/2022/63344b8b9a794721d6e3e666?ysclid=l9jpuco8gv49066902)
 * Чернышов рассказал, что кандидатов и докторов наук не призовут по мобилизации Об этом сообщает "Рамблер" (21/10/2022): 
 [https://news.rambler.ru/science/49557877-chernyshov-rasskazal-chto-kandidatov-i-doktorov-nauk-ne-prizovut-po-mobilizatsii/?ysclid=l9jpub6aut464190097](https://news.rambler.ru/science/49557877-chernyshov-rasskazal-chto-kandidatov-i-doktorov-nauk-ne-prizovut-po-mobilizatsii/?ysclid=l9jpub6aut464190097)
-* "О мобилизационной подготовке и мобилизации в Российской Федерации" (в части освобождения от мобилизации граждан, имеющих ученую степень доктора наук или кандидата наук (25/10/2022): [https://sozd.duma.gov.ru/bill/220935-8](https://sozd.duma.gov.ru/bill/220935-8)
+* В Госдуму внесён законопроект об освобождении от мобилизации докторов и кандидатов наук (25/10/2022): [https://russian.rt.com/russia/news/1065848-gosduma-mobilizaciya-otsrochka?utm_source=yxnews&utm_medium=desktop](https://russian.rt.com/russia/news/1065848-gosduma-mobilizaciya-otsrochka?utm_source=yxnews&utm_medium=desktop)
 
 ## Телграмм каналы:
 * BRIEF: [https://t.me/rusbrief/62532](https://t.me/rusbrief/62532)
