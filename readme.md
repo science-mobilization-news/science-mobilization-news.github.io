@@ -28,6 +28,7 @@
 * В Госдуме заявили о планах не мобилизовать граждан с учеными степенями (28/09/2022):[https://www.rbc.ru/politics/28/09/2022/63344b8b9a794721d6e3e666?ysclid=l9jpuco8gv49066902](https://www.rbc.ru/politics/28/09/2022/63344b8b9a794721d6e3e666?ysclid=l9jpuco8gv49066902)
 * Чернышов рассказал, что кандидатов и докторов наук не призовут по мобилизации Об этом сообщает "Рамблер" (21/10/2022): 
 [https://news.rambler.ru/science/49557877-chernyshov-rasskazal-chto-kandidatov-i-doktorov-nauk-ne-prizovut-po-mobilizatsii/?ysclid=l9jpub6aut464190097](https://news.rambler.ru/science/49557877-chernyshov-rasskazal-chto-kandidatov-i-doktorov-nauk-ne-prizovut-po-mobilizatsii/?ysclid=l9jpub6aut464190097)
+* "О мобилизационной подготовке и мобилизации в Российской Федерации" (в части освобождения от мобилизации граждан, имеющих ученую степень доктора наук или кандидата наук (25/10/2022): [https://sozd.duma.gov.ru/bill/220935-8](https://sozd.duma.gov.ru/bill/220935-8)
 
 ## Телграмм каналы:
 * BRIEF: [https://t.me/rusbrief/62532](https://t.me/rusbrief/62532)
@@ -37,7 +38,9 @@
 * Сергей Кабышев. Председатель комитета Государственной Думы по науке и высшему образованию: [https://t.me/SKabyshev/310](https://t.me/SKabyshev/310)
 * ЧЕРНЫШОВ. Вице-спикер ГД от ЛДПР. Образование, молодежка, вера: [https://t.me/borischernyshov/680](https://t.me/borischernyshov/680)
 * Научно-образовательная политика: [https://t.me/scienpolicy/28389](https://t.me/scienpolicy/28389)
-
+* Екатерина Харченко, вместе (25/10/2022): [https://t.me/kharchenkoekaterina/2361](https://t.me/kharchenkoekaterina/2361)
+* Официальный канал ИД Коммерсантъ (25/10/2022): [https://t.me/kommersant/41919](https://t.me/kommersant/41919)
+* Михаил Матвеев коммент (25/10/2022): [https://t.me/matveevkomment/3537](https://t.me/matveevkomment/3537)
 ## VK:
 * МЕТОДИКА ОБУЧЕНИЯ ИНОСТРАННЫМ ЯЗЫКАМ: [https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231](https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231)
 * Гидрология ТГУ: [https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522](https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522)
