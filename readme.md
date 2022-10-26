@@ -46,7 +46,7 @@
 * Екатерина Харченко, вместе (25/10/2022): [https://t.me/kharchenkoekaterina/2361](https://t.me/kharchenkoekaterina/2361)
 * Официальный канал ИД Коммерсантъ (25/10/2022): [https://t.me/kommersant/41919](https://t.me/kommersant/41919)
 * Михаил Матвеев коммент (25/10/2022): [https://t.me/matveevkomment/3537](https://t.me/matveevkomment/3537)
-* BRIEF: [https://t.me/rusbrief/64078] (https://t.me/rusbrief/64078)
+* BRIEF: [https://t.me/rusbrief/64078](https://t.me/rusbrief/64078)
 ## VK:
 * МЕТОДИКА ОБУЧЕНИЯ ИНОСТРАННЫМ ЯЗЫКАМ: [https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231](https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231)
 * Гидрология ТГУ: [https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522](https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522)
