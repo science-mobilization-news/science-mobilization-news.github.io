@@ -33,7 +33,7 @@
 * Чернышов рассказал, что кандидатов и докторов наук не призовут по мобилизации Об этом сообщает "Рамблер" (21/10/2022): 
 [https://news.rambler.ru/science/49557877-chernyshov-rasskazal-chto-kandidatov-i-doktorov-nauk-ne-prizovut-po-mobilizatsii/?ysclid=l9jpub6aut464190097](https://news.rambler.ru/science/49557877-chernyshov-rasskazal-chto-kandidatov-i-doktorov-nauk-ne-prizovut-po-mobilizatsii/?ysclid=l9jpub6aut464190097)
 * В Госдуму внесён законопроект об освобождении от мобилизации докторов и кандидатов наук (25/10/2022): [https://russian.rt.com/russia/news/1065848-gosduma-mobilizaciya-otsrochka?utm_source=yxnews&utm_medium=desktop](https://russian.rt.com/russia/news/1065848-gosduma-mobilizaciya-otsrochka?utm_source=yxnews&utm_medium=desktop)
-* Депутат фракции КПРФ Михаил Матвеев также внес законопроект, который предлагает не призывать на военную службу в рамках частичной мобилизации "граждан, не проходивших военную службу" ве сру[https://tass.ru/obschestvo/16152077](https://tass.ru/obschestvo/16152077)
+* Депутат фракции КПРФ Михаил Матвеев также внес законопроект, который предлагает не призывать на военную службу в рамках частичной мобилизации "граждан, не проходивших военную службу" [https://tass.ru/obschestvo/16152077](https://tass.ru/obschestvo/16152077)
 
 ## Телграмм каналы:
 * BRIEF: [https://t.me/rusbrief/62532](https://t.me/rusbrief/62532)
