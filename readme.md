@@ -3,6 +3,7 @@
 *  "О мобилизационной подготовке и мобилизации в Российской Федерации" (в части освобождения от мобилизации граждан, имеющих ученую степень доктора наук или кандидата наук (25/10/2022): [https://sozd.duma.gov.ru/bill/220935-8](https://sozd.duma.gov.ru/bill/220935-8)
 
 ## СМИ:
+* В Госдуму внесли законопроект об освобождении ученых от частичной мобилизации (25/10/2022): [https://www.forbes.ru/society/480280-v-gosdumu-vnesli-zakonoproekt-ob-osvobozdenii-ucenyh-ot-casticnoj-mobilizacii](https://www.forbes.ru/society/480280-v-gosdumu-vnesli-zakonoproekt-ob-osvobozdenii-ucenyh-ot-casticnoj-mobilizacii)
 * РАН призвала дать отсрочку от мобилизации еще трем категориям россиян (27/09/2022): [https://lenta.ru/news/2022/09/27/naukkd/](https://lenta.ru/news/2022/09/27/naukkd/)
 * В Госдуме заявили о планах не мобилизовать граждан с учеными степенями (28/09/2022):  [https://www.rbc.ru/politics/28/09](https://www.rbc.ru/politics/28/09/2022/63344b8b9a794721d6e3e666?ysclid=l9gtlc98wd279464297)
 * В Госдуме призвали дать отсрочку от мобилизации кандидатам и докторам наук (06/10/2022): [https://ria.ru/20221006/otsrochka-1821866145.html?utm_source=yxnews&utm_medium=mobile](https://ria.ru/20221006/otsrochka-1821866145.html?utm_source=yxnews&utm_medium=mobile)
@@ -32,6 +33,7 @@
 * Чернышов рассказал, что кандидатов и докторов наук не призовут по мобилизации Об этом сообщает "Рамблер" (21/10/2022): 
 [https://news.rambler.ru/science/49557877-chernyshov-rasskazal-chto-kandidatov-i-doktorov-nauk-ne-prizovut-po-mobilizatsii/?ysclid=l9jpub6aut464190097](https://news.rambler.ru/science/49557877-chernyshov-rasskazal-chto-kandidatov-i-doktorov-nauk-ne-prizovut-po-mobilizatsii/?ysclid=l9jpub6aut464190097)
 * В Госдуму внесён законопроект об освобождении от мобилизации докторов и кандидатов наук (25/10/2022): [https://russian.rt.com/russia/news/1065848-gosduma-mobilizaciya-otsrochka?utm_source=yxnews&utm_medium=desktop](https://russian.rt.com/russia/news/1065848-gosduma-mobilizaciya-otsrochka?utm_source=yxnews&utm_medium=desktop)
+* Депутат фракции КПРФ Михаил Матвеев также внес законопроект, который предлагает не призывать на военную службу в рамках частичной мобилизации "граждан, не проходивших военную службу" ве сру[https://tass.ru/obschestvo/16152077](https://tass.ru/obschestvo/16152077)
 
 ## Телграмм каналы:
 * BRIEF: [https://t.me/rusbrief/62532](https://t.me/rusbrief/62532)
