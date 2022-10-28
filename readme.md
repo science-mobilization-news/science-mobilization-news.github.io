@@ -44,7 +44,7 @@
 * Депутат фракции КПРФ Михаил Матвеев также внес законопроект, который предлагает не призывать на военную службу в рамках частичной мобилизации "граждан, не проходивших военную службу" [https://tass.ru/obschestvo/16152077](https://tass.ru/obschestvo/16152077)
 
 ## Телграмм каналы:
-* Александр Мажуга | МАГнит (27/10/2022) [https://t.me/MAGnit80/724](https://t.me/MAGnit80/724)
+* Александр Мажуга МАГнит (27/10/2022) [https://t.me/MAGnit80/724](https://t.me/MAGnit80/724)
 * BRIEF: [https://t.me/rusbrief/62532](https://t.me/rusbrief/62532)
 * Российская академия наук: [https://t.me/rasofficial/4628](https://t.me/rasofficial/4628)
 * ЧЕРНЫШОВ. Вице-спикер ГД от ЛДПР. Образование, молодежка, вера: [https://t.me/borischernyshov/622](https://t.me/borischernyshov/622)
