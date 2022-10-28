@@ -10,6 +10,7 @@
 * [https://science-mobilization.github.io/](https://science-mobilization.github.io/)
 
 ## СМИ:
+* Путин пообещал создать ученым в России условия привлекательнее заграничных:[https://rossaprimavera.ru/news/e67ca75c](https://rossaprimavera.ru/news/e67ca75c)
 * В Госдуму внесли законопроект об освобождении ученых от частичной мобилизации (25/10/2022): [https://www.forbes.ru/society/480280-v-gosdumu-vnesli-zakonoproekt-ob-osvobozdenii-ucenyh-ot-casticnoj-mobilizacii](https://www.forbes.ru/society/480280-v-gosdumu-vnesli-zakonoproekt-ob-osvobozdenii-ucenyh-ot-casticnoj-mobilizacii)
 * РАН призвала дать отсрочку от мобилизации еще трем категориям россиян (27/09/2022): [https://lenta.ru/news/2022/09/27/naukkd/](https://lenta.ru/news/2022/09/27/naukkd/)
 * В Госдуме заявили о планах не мобилизовать граждан с учеными степенями (28/09/2022):  [https://www.rbc.ru/politics/28/09](https://www.rbc.ru/politics/28/09/2022/63344b8b9a794721d6e3e666?ysclid=l9gtlc98wd279464297)
@@ -43,6 +44,7 @@
 * Депутат фракции КПРФ Михаил Матвеев также внес законопроект, который предлагает не призывать на военную службу в рамках частичной мобилизации "граждан, не проходивших военную службу" [https://tass.ru/obschestvo/16152077](https://tass.ru/obschestvo/16152077)
 
 ## Телграмм каналы:
+* Александр Мажуга | МАГнит (27/10/2022) [https://t.me/MAGnit80/724](https://t.me/MAGnit80/724)
 * BRIEF: [https://t.me/rusbrief/62532](https://t.me/rusbrief/62532)
 * Российская академия наук: [https://t.me/rasofficial/4628](https://t.me/rasofficial/4628)
 * ЧЕРНЫШОВ. Вице-спикер ГД от ЛДПР. Образование, молодежка, вера: [https://t.me/borischernyshov/622](https://t.me/borischernyshov/622)
