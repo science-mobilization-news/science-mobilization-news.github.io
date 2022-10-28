@@ -3,7 +3,7 @@
 *  "О мобилизационной подготовке и мобилизации в Российской Федерации" (в части освобождения от мобилизации граждан, имеющих ученую степень доктора наук или кандидата наук (25/10/2022): [https://sozd.duma.gov.ru/bill/220935-8](https://sozd.duma.gov.ru/bill/220935-8)
 
 ## Письма от общества
-* [Письмо в  Государственную думму](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/1.jpg?raw=true)
+* [Письмо в  Государственную думу](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/1.jpg?raw=true)
 * [Письмо в  Президенту РФ](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/2.jpg?raw=true)
 
 ## Наше открытое письмо:
@@ -43,7 +43,7 @@
 * В Госдуму внесён законопроект об освобождении от мобилизации докторов и кандидатов наук (25/10/2022): [https://russian.rt.com/russia/news/1065848-gosduma-mobilizaciya-otsrochka?utm_source=yxnews&utm_medium=desktop](https://russian.rt.com/russia/news/1065848-gosduma-mobilizaciya-otsrochka?utm_source=yxnews&utm_medium=desktop)
 * Депутат фракции КПРФ Михаил Матвеев также внес законопроект, который предлагает не призывать на военную службу в рамках частичной мобилизации "граждан, не проходивших военную службу" [https://tass.ru/obschestvo/16152077](https://tass.ru/obschestvo/16152077)
 
-## Телграмм каналы:
+## Телграм каналы:
 * Александр Мажуга МАГнит (27/10/2022) [https://t.me/MAGnit80/724](https://t.me/MAGnit80/724)
 * Катюша Chat (26/10/2022) [https://t.me/c/1588764346/3406](https://t.me/c/1588764346/3406)
 * BRIEF: [https://t.me/rusbrief/62532](https://t.me/rusbrief/62532)
