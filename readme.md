@@ -2,7 +2,7 @@
 ## Законопроект
 *  "О мобилизационной подготовке и мобилизации в Российской Федерации" (в части освобождения от мобилизации граждан, имеющих ученую степень доктора наук или кандидата наук (25/10/2022): [https://sozd.duma.gov.ru/bill/220935-8](https://sozd.duma.gov.ru/bill/220935-8)
 
-## ПИСЬМА ОТ ОБЩЕСТВА
+## Письма от общества
 * [Письмо в  Государственную думму](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/1.jpg?raw=true)
 * [Письмо в  Президенту РФ](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/2.jpg?raw=true)
 
