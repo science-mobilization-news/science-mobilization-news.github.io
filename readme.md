@@ -2,6 +2,13 @@
 ## Законопроект
 *  "О мобилизационной подготовке и мобилизации в Российской Федерации" (в части освобождения от мобилизации граждан, имеющих ученую степень доктора наук или кандидата наук (25/10/2022): [https://sozd.duma.gov.ru/bill/220935-8](https://sozd.duma.gov.ru/bill/220935-8)
 
+## ПИСЬМА ОТ ОБЩЕСТВА
+* [Письмо в  Государственную думму](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/1.jpg?raw=true)
+* [Письмо в  Президенту РФ](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/2.jpg?raw=true)
+
+## Наше открытое письмо:
+* [https://science-mobilization.github.io/](https://science-mobilization.github.io/)
+
 ## СМИ:
 * В Госдуму внесли законопроект об освобождении ученых от частичной мобилизации (25/10/2022): [https://www.forbes.ru/society/480280-v-gosdumu-vnesli-zakonoproekt-ob-osvobozdenii-ucenyh-ot-casticnoj-mobilizacii](https://www.forbes.ru/society/480280-v-gosdumu-vnesli-zakonoproekt-ob-osvobozdenii-ucenyh-ot-casticnoj-mobilizacii)
 * РАН призвала дать отсрочку от мобилизации еще трем категориям россиян (27/09/2022): [https://lenta.ru/news/2022/09/27/naukkd/](https://lenta.ru/news/2022/09/27/naukkd/)
@@ -52,7 +59,6 @@
 * Гидрология ТГУ: [https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522](https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522)
 
 
-## Наше открытое письмо:
-* [https://science-mobilization.github.io/](https://science-mobilization.github.io/)
+
 
 
