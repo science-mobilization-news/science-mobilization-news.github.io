@@ -4,7 +4,7 @@
 
 ## Письма от общества
 * [Письмо в  Государственную думу](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/1.jpg?raw=true)
-* [Письмо в  Президенту РФ](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/2.jpg?raw=true)
+* [Письмо  Президенту РФ](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/2.jpg?raw=true)
 
 ## Наше открытое письмо:
 * [https://science-mobilization.github.io/](https://science-mobilization.github.io/)
