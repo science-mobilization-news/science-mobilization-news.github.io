@@ -10,7 +10,7 @@
 * [https://science-mobilization.github.io/](https://science-mobilization.github.io/)
 
 ## Наша презентация с предложениями:
-* [https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/resume.pdf](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/resume.pdf)
+* [https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/resume.pdf](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/resume.pdf?raw=true)
 
 ## СМИ:
 * Путин пообещал создать ученым в России условия привлекательнее заграничных:[https://rossaprimavera.ru/news/e67ca75c](https://rossaprimavera.ru/news/e67ca75c)
