@@ -9,6 +9,9 @@
 ## Наше открытое письмо:
 * [https://science-mobilization.github.io/](https://science-mobilization.github.io/)
 
+## Наша презентация с предложениями:
+* [https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/resume.pdf](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/resume.pdf)
+
 ## СМИ:
 * Путин пообещал создать ученым в России условия привлекательнее заграничных:[https://rossaprimavera.ru/news/e67ca75c](https://rossaprimavera.ru/news/e67ca75c)
 * В Госдуму внесли законопроект об освобождении ученых от частичной мобилизации (25/10/2022): [https://www.forbes.ru/society/480280-v-gosdumu-vnesli-zakonoproekt-ob-osvobozdenii-ucenyh-ot-casticnoj-mobilizacii](https://www.forbes.ru/society/480280-v-gosdumu-vnesli-zakonoproekt-ob-osvobozdenii-ucenyh-ot-casticnoj-mobilizacii)
