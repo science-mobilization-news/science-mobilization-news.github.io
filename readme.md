@@ -46,6 +46,7 @@
 * В Госдуму внесён законопроект об освобождении от мобилизации докторов и кандидатов наук (25/10/2022): [https://russian.rt.com/russia/news/1065848-gosduma-mobilizaciya-otsrochka?utm_source=yxnews&utm_medium=desktop](https://russian.rt.com/russia/news/1065848-gosduma-mobilizaciya-otsrochka?utm_source=yxnews&utm_medium=desktop)
 * Депутат фракции КПРФ Михаил Матвеев также внес законопроект, который предлагает не призывать на военную службу в рамках частичной мобилизации "граждан, не проходивших военную службу" (25/10/2022) [https://tass.ru/obschestvo/16152077](https://tass.ru/obschestvo/16152077)
 * Эксперт: законопроект об отсрочках от мобилизации для обладателей ученых степеней разумен (16/11/2022) [https://www.kommersant.ru/doc/5669067](https://www.kommersant.ru/doc/5669067)
+* Депутат заявила об отрицательном ответе Минобороны на отсрочки от призыва для ученых (29/11/2022)[https://www.forbes.ru/society/481764-deputat-zaavila-ob-otricatel-nom-otvete-minoborony-na-otsrocki-ot-prizyva-dla-ucenyh](https://www.forbes.ru/society/481764-deputat-zaavila-ob-otricatel-nom-otvete-minoborony-na-otsrocki-ot-prizyva-dla-ucenyh)
 
 ## Telegram-каналы:
 * Александр Мажуга МАГнит (27/10/2022) [https://t.me/MAGnit80/724](https://t.me/MAGnit80/724)
@@ -61,6 +62,9 @@
 * Официальный канал ИД Коммерсантъ (25/10/2022): [https://t.me/kommersant/41919](https://t.me/kommersant/41919)
 * Михаил Матвеев коммент (25/10/2022): [https://t.me/matveevkomment/3537](https://t.me/matveevkomment/3537)
 * BRIEF: [https://t.me/rusbrief/64078](https://t.me/rusbrief/64078)
+* Горячева ДЕЛО говорит "Министерство обороны посчитало, что расширять указ президента об отсрочке «нецелесообразно». А принятых уже мер - достаточно"  [https://t.me/DeputatGoryacheva/956](https://t.me/DeputatGoryacheva/956)
+* Наука и университеты "Законопроект об отсрочках для ученых не поддержан" [https://t.me/naukauniver/2711](https://t.me/naukauniver/2711)
+* BBC News | Русская служба "Правительство России против особого отношения к ученым при мобилизации" [https://t.me/bbcrussian/38211](https://t.me/bbcrussian/38211/)
 ## VK:
 * МЕТОДИКА ОБУЧЕНИЯ ИНОСТРАННЫМ ЯЗЫКАМ: [https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231](https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231)
 * Гидрология ТГУ: [https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522](https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522)
