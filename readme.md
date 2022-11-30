@@ -12,6 +12,10 @@
 ## Наша презентация с предложениями:
 * [https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/resume.pdf](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/resume.pdf?raw=true)
 
+## Количество лиц с учеными степенями
+![Динамика количества лиц с учеными степенями](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/12.jpg "Динамика количества лиц с учеными степенями")
+![Динамика количества молодых ученых до 40 лет](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/13.jpg "Динамика количества молодых ученых до 40 лет")
+
 ## СМИ:
 * Путин пообещал создать ученым в России условия привлекательнее заграничных:[https://rossaprimavera.ru/news/e67ca75c](https://rossaprimavera.ru/news/e67ca75c)
 * В Госдуму внесли законопроект об освобождении ученых от частичной мобилизации (25/10/2022): [https://www.forbes.ru/society/480280-v-gosdumu-vnesli-zakonoproekt-ob-osvobozdenii-ucenyh-ot-casticnoj-mobilizacii](https://www.forbes.ru/society/480280-v-gosdumu-vnesli-zakonoproekt-ob-osvobozdenii-ucenyh-ot-casticnoj-mobilizacii)
