@@ -1,6 +1,10 @@
 # Новости по мобилизации ученых и лиц с учеными степенями 
 ## Законопроект
-*  "О мобилизационной подготовке и мобилизации в Российской Федерации" (в части освобождения от мобилизации граждан, имеющих ученую степень доктора наук или кандидата наук (25/10/2022): [https://sozd.duma.gov.ru/bill/220935-8](https://sozd.duma.gov.ru/bill/220935-8)
+* "О мобилизационной подготовке и мобилизации в Российской Федерации" (в части освобождения от мобилизации граждан, имеющих ученую степень доктора наук или кандидата наук (25/10/2022)(Депутат Государственной Думы М.Н.Матвеев)
+[https://sozd.duma.gov.ru/bill/220935-8](https://sozd.duma.gov.ru/bill/220935-8)
+
+* "О мобилизационной подготовке и мобилизации в Российской Федерации" в части освобождения граждан от призыва на военную службу по частичной мобилизации и предоставлении отсрочек от призыва на военную службу" (Депутаты Государственной Думы К.А.Горячева, С.В.Авксентьева, Р.Б.Чемерис, О.Н.Смолин, В.В.Сипягин, Г.К.Арапов )
+[https://sozd.duma.gov.ru/bill/259823-8](https://sozd.duma.gov.ru/bill/259823-8)
 
 ## Письма от общества
 * [Письмо в  Государственную думу](https://github.com/science-mobilization-news/science-mobilization-news.github.io/blob/main/1.jpg?raw=true)
@@ -53,6 +57,11 @@
 * Депутат заявила об отрицательном ответе Минобороны на отсрочки от призыва для ученых (29/11/2022)[https://www.forbes.ru/society/481764-deputat-zaavila-ob-otricatel-nom-otvete-minoborony-na-otsrocki-ot-prizyva-dla-ucenyh](https://www.forbes.ru/society/481764-deputat-zaavila-ob-otricatel-nom-otvete-minoborony-na-otsrocki-ot-prizyva-dla-ucenyh)
 *  Минобороны не демобилизовало ученых Ведомство считает нецелесообразным давать отсрочку обладателям степеней (29/11/2022) [https://www.kommersant.ru/doc/5694328](https://www.kommersant.ru/doc/5694328)
 *  Депутаты сообщили, что Минобороны оставило отрицательный отзыв на проект об освобождении от мобилизации кандидатов и докторов наук. Минобрнауки напомнило, что такие вопросы вузы и НИИ отрабатывают с военкоматами в рабочем порядке (30/11/2022)[https://www.rbc.ru/politics/30/11/2022/6386ee059a79476bc8c0159f](https://www.rbc.ru/politics/30/11/2022/6386ee059a79476bc8c0159f)
+* В Госдуму внесли законопроект об отсрочке от частичной мобилизации для ученых со степенями (17/12/2022) [https://dzen.ru/a/Y5yYhpZoJnZZIACH](https://dzen.ru/a/Y5yYhpZoJnZZIACH)
+* Из брони печенные (17/12/2022) [https://www.kommersant.ru/doc/5732406](https://www.kommersant.ru/doc/5732406)
+* Имеющих ученую степень хотят освободить от частичной мобилизации 16/12/2022) [https://ria.ru/20221216/zakonotvorchestvo-1839211774.html](https://ria.ru/20221216/zakonotvorchestvo-1839211774.html)
+* Депутаты внесли законопроект об отсрочке от мобилизации для ученых (16/12/2022)[https://www.forbes.ru/society/482632-deputaty-vnesli-zakonoproekt-ob-otsrocke-ot-mobilizacii-dla-ucenyh](https://www.forbes.ru/society/482632-deputaty-vnesli-zakonoproekt-ob-otsrocke-ot-mobilizacii-dla-ucenyh)
+* В Госдуму внесли законопроект об отсрочке от частичной мобилизации для ученых со степеням (16/12/2022)[https://www.pnp.ru/social/v-gosdumu-vnesli-zakonoproekt-ob-otsrochke-ot-mobilizacii-dlya-uchenykh-so-stepenyami.html](https://www.pnp.ru/social/v-gosdumu-vnesli-zakonoproekt-ob-otsrochke-ot-mobilizacii-dlya-uchenykh-so-stepenyami.html)
 
 ## Telegram-каналы:
 * Александр Мажуга МАГнит (27/10/2022) [https://t.me/MAGnit80/724](https://t.me/MAGnit80/724)
@@ -72,12 +81,19 @@
 * Наука и университеты "Законопроект об отсрочках для ученых не поддержан" [https://t.me/naukauniver/2711](https://t.me/naukauniver/2711)
 * BBC News - Русская служба "Правительство России против особого отношения к ученым при мобилизации" [https://t.me/bbcrussian/38211](https://t.me/bbcrussian/38211/)
 * Красная Фурия, Правозащитник, Депутат Госдумы от КПРФ (30/11/2022): [https://t.me/ifilato/415](https://t.me/ifilato/415)
+* Раньше всех. Ну почти.[https://t.me/bbbreaking/143786](https://t.me/bbbreaking/143786)
 * BRIEF: (Мобилизационная готовность. Минобороны не поддержало законопроект об отсрочке от мобилизации для кандидатов и докторов наук)[https://t.me/rusbrief/72158](https://t.me/rusbrief/72158)
+* Советник СО РАН: (Новый заход в Госдуму за отсрочкой от частичной мобилизации для ученых)[https://t.me/CouncilorSBRAS/767](https://t.me/CouncilorSBRAS/767)
+* Vladimir Sipyagin: [https://t.me/vladimirsipyagin/496](https://t.me/vladimirsipyagin/496)
+* Наука и университеты Еще один законопроект о кандидатах и докторах: (https://t.me/naukauniver/2809)[https://t.me/naukauniver/2809) 
+* Горячева ДЕЛО говорит. Сегодня мы внесли в Думу Законопроект об освобождении от призыва по частичной мобилизации для кандидатов и докторов наук.(https://t.me/DeputatGoryacheva/986)[https://t.me/DeputatGoryacheva/986]
+
 ## VK:
 * МЕТОДИКА ОБУЧЕНИЯ ИНОСТРАННЫМ ЯЗЫКАМ: [https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231](https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231)
 * Гидрология ТГУ: [https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522](https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522)
 
-
+[!WARNING]
+> Dangerous certain consequences of an action.
 
 
 
