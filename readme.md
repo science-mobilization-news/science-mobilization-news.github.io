@@ -36,7 +36,7 @@
 1. Ученые просят дать докторам и кандидатам наук отсрочку от «частичной мобилизации» (18/10/2022):[https://vogazeta.ru/articles/2022/10/18/CHto_proiskhodit/21056-uchenye_prosyat_dat_doktoram_i_kandidatam_nauk_otsrochku_ot_chastichnoy_mobilizatsii](https://vogazeta.ru/articles/2022/10/18/CHto_proiskhodit/21056-uchenye_prosyat_dat_doktoram_i_kandidatam_nauk_otsrochku_ot_chastichnoy_mobilizatsii)
 1. Отсрочки от мобилизации: продолжение темы (19/10/2022): [https://vogazeta.ru/articles/2022/10/19/opinion/21077-Otsrochki_ot_mobilizatsii_prodolzhenie_temy](https://vogazeta.ru/articles/2022/10/19/opinion/21077-Otsrochki_ot_mobilizatsii_prodolzhenie_temy)
 1. «Частичная мобилизация»: новые категории граждан, которые могут претендовать на отсрочку (19/10/2022): [https://fulledu.ru/news/6756_chastichnaya-mobilizaciya-novye-kategorii-grazhdan.html](https://fulledu.ru/news/6756_chastichnaya-mobilizaciya-novye-kategorii-grazhdan.html)
-- Коллективное письмо учёных с требованием отсрочки от мобилизации (14/10/2022): 
+1. Коллективное письмо учёных с требованием отсрочки от мобилизации (14/10/2022): 
   - [https://pikabu.ru/story/kollektivnoe_pismo_uchyonyikh_s_trebovaniem_otsrochki_ot_mobilizatsii_9551667](https://pikabu.ru/story/kollektivnoe_pismo_uchyonyikh_s_trebovaniem_otsrochki_ot_mobilizatsii_9551667)
   - [https://aftershock.news/?q=node/1165890&full](https://aftershock.news/?q=node/1165890&full)
   - [https://aperturescience.ru/threads/kollektivnoe-pismo-uchjonyx-s-trebovaniem-otsrochki-ot-mobilizacii.937877/](https://aperturescience.ru/threads/kollektivnoe-pismo-uchjonyx-s-trebovaniem-otsrochki-ot-mobilizacii.937877/)
