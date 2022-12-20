@@ -85,8 +85,8 @@
 * BRIEF: (Мобилизационная готовность. Минобороны не поддержало законопроект об отсрочке от мобилизации для кандидатов и докторов наук)[https://t.me/rusbrief/72158](https://t.me/rusbrief/72158)
 * Советник СО РАН: (Новый заход в Госдуму за отсрочкой от частичной мобилизации для ученых)[https://t.me/CouncilorSBRAS/767](https://t.me/CouncilorSBRAS/767)
 * Vladimir Sipyagin: [https://t.me/vladimirsipyagin/496](https://t.me/vladimirsipyagin/496)
-* Наука и университеты Еще один законопроект о кандидатах и докторах: (https://t.me/naukauniver/2809)[https://t.me/naukauniver/2809) 
-* Горячева ДЕЛО говорит. Сегодня мы внесли в Думу Законопроект об освобождении от призыва по частичной мобилизации для кандидатов и докторов наук.(https://t.me/DeputatGoryacheva/986)[https://t.me/DeputatGoryacheva/986]
+* Наука и университеты Еще один законопроект о кандидатах и докторах: [https://t.me/naukauniver/2809](https://t.me/naukauniver/2809)
+* Горячева ДЕЛО говорит. Сегодня мы внесли в Думу Законопроект об освобождении от призыва по частичной мобилизации для кандидатов и докторов наук.[https://t.me/DeputatGoryacheva/986](https://t.me/DeputatGoryacheva/986)
 
 ## VK:
 * МЕТОДИКА ОБУЧЕНИЯ ИНОСТРАННЫМ ЯЗЫКАМ: [https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231](https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231)
