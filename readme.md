@@ -62,6 +62,9 @@
 1. Имеющих ученую степень хотят освободить от частичной мобилизации 16/12/2022) [https://ria.ru/20221216/zakonotvorchestvo-1839211774.html](https://ria.ru/20221216/zakonotvorchestvo-1839211774.html)
 1. Депутаты внесли законопроект об отсрочке от мобилизации для ученых (16/12/2022)[https://www.forbes.ru/society/482632-deputaty-vnesli-zakonoproekt-ob-otsrocke-ot-mobilizacii-dla-ucenyh](https://www.forbes.ru/society/482632-deputaty-vnesli-zakonoproekt-ob-otsrocke-ot-mobilizacii-dla-ucenyh)
 1. В Госдуму внесли законопроект об отсрочке от частичной мобилизации для ученых со степеням (16/12/2022)[https://www.pnp.ru/social/v-gosdumu-vnesli-zakonoproekt-ob-otsrochke-ot-mobilizacii-dlya-uchenykh-so-stepenyami.html](https://www.pnp.ru/social/v-gosdumu-vnesli-zakonoproekt-ob-otsrochke-ot-mobilizacii-dlya-uchenykh-so-stepenyami.html)
+1. В Госдуме сочли идею отсрочек ученым противоречащей подходу к мобилизации в России (16/01/2023)[https://www.forbes.ru/society/483816-v-gosdume-socli-ideu-otsrocek-ucenym-protivorecasej-podhodu-k-mobilizacii-v-rossii](https://www.forbes.ru/society/483816-v-gosdume-socli-ideu-otsrocek-ucenym-protivorecasej-podhodu-k-mobilizacii-v-rossii)
+1. Оборонный комитет Госдумы отверг инициативу об отсрочке от мобилизации для ученых (16/01/2023) [https://www.kommersant.ru/amp/5772978](https://www.kommersant.ru/amp/5772978)
+1. Оборонный комитет Госдумы отверг законопроект об отсрочке от мобилизации для ученых (16/01/2023) [https://m.gazeta.ru/social/news/2023/01/16/19501777.shtml](https://m.gazeta.ru/social/news/2023/01/16/19501777.shtml) 
 
 ## Telegram-каналы:
 1. Александр Мажуга МАГнит (27/10/2022) [https://t.me/MAGnit80/724](https://t.me/MAGnit80/724)
@@ -87,11 +90,15 @@
 1. Vladimir Sipyagin: [https://t.me/vladimirsipyagin/496](https://t.me/vladimirsipyagin/496)
 1. Наука и университеты Еще один законопроект о кандидатах и докторах: [https://t.me/naukauniver/2809](https://t.me/naukauniver/2809)
 1. Горячева ДЕЛО говорит. Сегодня мы внесли в Думу Законопроект об освобождении от призыва по частичной мобилизации для кандидатов и докторов наук.[https://t.me/DeputatGoryacheva/986](https://t.me/DeputatGoryacheva/986)
+1. Новые известия.Ученых - призывать, священников - беречь: депутаты от КПРФ не понимают, почему патриарху Кириллу удалось договориться с Минобороны об отсрочке для священнослужителей, а их предложение об отсрочке для кандидатов и докторов наук в Госдуме не поддержали (16/01/2023) [https://t.me/newizvestya/9056](https://t.me/newizvestya/9056)]
+1. BRIEF: Комитет Госдумы по обороне отклонил (https://t.me/kshulika/63244) предложение освободить от мобилизации обладателей научных степеней, внесенное депутатом от КПРФ Михаилом Матвеевым.(16/01/2023) [https://t.me/rusbrief/84538](https://t.me/rusbrief/84538)
+1. КЛИШАС: Вопрос, под руководством кого, если отсрочка кандидатам и докторам наук не положена? (17/01/2023)[https://t.me/andreyklishas/1913](https://t.me/andreyklishas/1913)
+1. Россия сейчас: «А кто страну защищать будет?»: депутатам не понравилась идея брони для предпринимателей и ученых. У самих депутатов такая бронь есть. (18/01/2023)(https://t.me/c/1419822622/36795)[https://t.me/c/1419822622/36795] 
 
 ## VK:
 * МЕТОДИКА ОБУЧЕНИЯ ИНОСТРАННЫМ ЯЗЫКАМ: [https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231](https://vk.com/wall-58168585_362?ysclid=l9idncwpw6748973231)
 * Гидрология ТГУ: [https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522](https://vk.com/wall-4937873_1209?ysclid=l9idref78d630532522)
-
+* Лентач. Комитет Госдумы по обороне отказался освобождать от мобилизации кандидатов и докторов наук (16/01/2023) ([https://vk.com/public125004421?w=wall-125004421_4856451](https://vk.com/public125004421?w=wall-125004421_4856451)
 
 
 
